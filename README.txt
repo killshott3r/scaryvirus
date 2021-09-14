@@ -1,0 +1,2 @@
+hey this is just for fun purposes to show to my friends and do not use this for malicious means. i am not responsible for a thing.
+use your less important file/folder or create new ones for this virus. ok bye.
